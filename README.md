@@ -1,2 +1,2 @@
-# This-will-remind-your-minecraft-vibes
-This game will remind your old Minecraft vibes.
+# This game will remind your old minecraft vibes
+so feel free to download!
